@@ -1,3 +1,3 @@
 # Hello-world
 Practtice
-walk intot he club like wadup
+walk into the club like wadup
